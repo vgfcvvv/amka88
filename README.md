@@ -1,2 +1,0 @@
-# amka88
-ajjaja
